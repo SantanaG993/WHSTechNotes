@@ -8,4 +8,6 @@ What I could of done diffrently was pay more attention to Ms whitbby on the inst
 This is a free week.
 # September 24, 2024
 There is many resasons why following instructions exactly as given when learning code is important.
-One of the first reasons is because if you dont type in the word exactly as its supposed to be it can mean something else. Another reason is other people can get confused on what your'e trying to say. And that is why its important to follow instructions exactly as given when learning code.
+One of the first reasons is because if you dont type in the word exactly as its supposed to be it can mean something else. Another reason is other people can get confused on what your'e trying to say. And that is why its important to follow instructions exactly as given when learning code. 
+# September 30, 2024
+I use computer science 5 days a week in my first period class. Without technology we would'nt be able to do a lot of things. We all use and need technology daily for work,entertainmnet and more. My daily routine would be really different without technology because I wouldnt be able to learn and i would have no entertainment. And thats is how technology impacts my daily routine.
