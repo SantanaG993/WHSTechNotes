@@ -23,3 +23,5 @@ One positive impact about technology being apart of the election,is technology w
 I believe its important to protect your personal information online for lots of reasons.
 One of the main important reasons is because theres lots of creeps that could steal your information and do bad things with it. A way I believe you can keep your personal information safe is by not sharing your password with anyone or posting things that people shouldnt see.
 I personally have never posted anything with personal information that I later reggreted but if you have I recoomend immediately deleting it and telling an adult. And that is what I think about personal information online.
+# November 12, 2024
+A current event that interests me is learning sign language because it seems really interesting. I believe it relates to computer science because learning code for cumputer is like learning sign language. For example they both require exact things to say the right word or phrase and they both take practice and time. And that is how I believe sign language relates to coding.
