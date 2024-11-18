@@ -25,3 +25,5 @@ One of the main important reasons is because theres lots of creeps that could st
 I personally have never posted anything with personal information that I later reggreted but if you have I recoomend immediately deleting it and telling an adult. And that is what I think about personal information online.
 # November 12, 2024
 A current event that interests me is learning sign language because it seems really interesting. I believe it relates to computer science because learning code for cumputer is like learning sign language. For example they both require exact things to say the right word or phrase and they both take practice and time. And that is how I believe sign language relates to coding.
+# November 18, 2024
+Next week we are celebrating Thanksgiving. Its very special because it has a lot of history about the piligrims story. We celebrate by having a giant feast and giving thanks to everyone we're grateful for. Therefore I believe thanksgiving is a very important holiday.
