@@ -27,3 +27,7 @@ I personally have never posted anything with personal information that I later r
 A current event that interests me is learning sign language because it seems really interesting. I believe it relates to computer science because learning code for cumputer is like learning sign language. For example they both require exact things to say the right word or phrase and they both take practice and time. And that is how I believe sign language relates to coding.
 # November 18, 2024
 Next week we are celebrating Thanksgiving. Its very special because it has a lot of history about the piligrims story. We celebrate by having a giant feast and giving thanks to everyone we're grateful for. Therefore I believe thanksgiving is a very important holiday.
+# December 2, 2024
+I went to Google and found a couple interesting things about AI. Althought AI could be fun and used to make funny memes and more it concerns me. It concerns me because everyday I see videos with false information that everyone believed just for it to be AI. It can also ruin peoples life by making them seem like they were doing something bad but it just ends up being AI. I do believe you can use AI in a good way like advertising things and more. But overall I think we are better off with no AI.
+
+
