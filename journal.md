@@ -29,5 +29,8 @@ A current event that interests me is learning sign language because it seems rea
 Next week we are celebrating Thanksgiving. Its very special because it has a lot of history about the piligrims story. We celebrate by having a giant feast and giving thanks to everyone we're grateful for. Therefore I believe thanksgiving is a very important holiday.
 # December 2, 2024
 I went to Google and found a couple interesting things about AI. Althought AI could be fun and used to make funny memes and more it concerns me. It concerns me because everyday I see videos with false information that everyone believed just for it to be AI. It can also ruin peoples life by making them seem like they were doing something bad but it just ends up being AI. I do believe you can use AI in a good way like advertising things and more. But overall I think we are better off with no AI.
+# December 9, 2024
+To me the word brain rot means like making something dumb or funny. I believe digital media had a positive impact on me because it made me laugh many times and made my friends laugh. And yes I also believe that you can balance technology with educational things and not brain rot. The way you can do that is by searching up what you want. And that is my opinion on this.
+
 
 
