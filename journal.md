@@ -34,5 +34,6 @@ To me the word brain rot means like making something dumb or funny. I believe di
 # December 16, 2024
 Yes I am looking foward to winter break. Because it should be so much fun to spend time with my family and friends. Im also exited to stay up late and sleep in. And thats why im exited for winter break.
 
-
+# January 8, 2025
+Something I really enjoyed most about last semester was the minecraft assignments. I would like to do more of those because they were fun. I also really liked doing journals because theyre easy and fun. Im not really interested in pursing any certificate for this class tho.
 
