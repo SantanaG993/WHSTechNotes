@@ -36,4 +36,5 @@ Yes I am looking foward to winter break. Because it should be so much fun to spe
 
 # January 8, 2025
 Something I really enjoyed most about last semester was the minecraft assignments. I would like to do more of those because they were fun. I also really liked doing journals because theyre easy and fun. Im not really interested in pursing any certificate for this class tho.
-
+# January 13, 2025
+I believe that AI is slowly takig over a lot of things. I think that in a way AI is really helpful and can help you invent more things. But I also think that it can be very bad because it can spread false information. What I would do to prepare myself for it is I would simply leave AI alone.
