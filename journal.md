@@ -40,3 +40,10 @@ Something I really enjoyed most about last semester was the minecraft assignment
 I believe that AI is slowly takig over a lot of things. I think that in a way AI is really helpful and can help you invent more things. But I also think that it can be very bad because it can spread false information. What I would do to prepare myself for it is I would simply leave AI alone.
 # January 22, 2025
 I would personally put a type of security to make sure the person is old enough to use tik tok. I think the goverment wanted to ban tik tok because it can be dangerous with certain challenges or trends. But i think tik tok can be a good thing because it teaches us important safety information. I was very upset when it got banned because tik tok is a very intertaining app. A lesson I can take from this is that the goverment can take away things very quickly. Another lesson I can take from this is that the goverment dosent want us to have certain things because they dont like it. Overall I think tik tok ia a fun app and shouldnt be taken away. And that is what I think of tik tok.
+# January 29, 2025
+| Name     | Car | Mistake |
+| :------- | :-- | :------ |
+| Jimmy  Honda Civic 	Drilled Hole in Gas Tank  
+| Kayla  GMC sierra  Fixed wrong problem        
+| Bart   Toyota Corrolla    Left stains on carpet       
+| Harrison Subaru Forester    Left the oil cap off 
