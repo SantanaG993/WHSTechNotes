@@ -47,3 +47,5 @@ I would personally put a type of security to make sure the person is old enough 
 | Kayla  GMC sierra  Fixed wrong problem        
 | Bart   Toyota Corrolla    Left stains on carpet       
 | Harrison Subaru Forester    Left the oil cap off 
+# February 3, 2025
+I believe that computer science can help in dangerous sitiuations a lot. One way is that we can easily send a emergency text to everyone. We can also figure out how to stop the problem by searching up some solutions using technology. Other people can also connect using technology more quickly. I dont think technology can help with all problems tho. But for the most part its really helpful. And even in movies it has helped a lot in sitiuations. And thats why I believe technology can help.
