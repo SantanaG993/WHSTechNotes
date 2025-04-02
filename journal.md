@@ -63,3 +63,5 @@ Over the spring break I used different types of technology. For example I used T
 I believe that AI predictions of sports kinda ruined the fun of it. Because now you know for the most part whos gonna win so whats the point of watching. And also it dosent allow you to make your own predictions. But it can also be good because people can place bets now and be more sure in their options. And it can also help people with facts of the game. Or can help them understand things more. But overall I think everyone has their own opinions about AI. Therefore AI can be good and bad in sports.
 # March 31, 2025
 Im feeling good, the most stressful part has been math class. One goal I have for the rest of the scholl year is to pass my math class,to do that I can keep up with my work.
+# April 2, 2025
+I did the dance party lesson.
