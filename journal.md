@@ -67,3 +67,4 @@ Im feeling good, the most stressful part has been math class. One goal I have fo
 I did the dance party lesson.
 # April 7, 2025
 I believe AI can help us with the star tests in many reasons. One we can get the answers quicker. Two we can search on how to solve the problems quicker and better. AI can also help you understand certain things better. I personally wouldnt use it tho. Because I prefer to study my own ways with the ways the teacher taught us. Overall I think it depends on the persons opinion. So that why I think AI could help certain students with the STAAR test.
+# April 14, 2025
