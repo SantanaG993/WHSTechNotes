@@ -70,3 +70,5 @@ I believe AI can help us with the star tests in many reasons. One we can get the
 # April 14, 2025
 # April 28, 2025
 Technology can help students study for many reasons. One way it can help students is AI can teach you how to solve something step by step. They can also watch videos to study and more. And thats how technology can help students study.
+# May 5, 2025
+I believe 100 people can defeat 1 gorilla. Because if everyone works together they can trick the gorilla and defeat it. The gorilla also probably wouldnt know who to go for so that would buy people time. I dont really think its responsible to make this challenge go viral but its also not irresponsible. This shows that anything can go viral on the internet. Because as long as its interesting it will go viral. In conclusion I believe 100 people can defeat 1 gorilla. And I think a lot of people would agree.
